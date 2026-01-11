@@ -1,4 +1,4 @@
-The best color is ____
+The best color is green
 
 The best tv show is ________
 
