@@ -6,7 +6,7 @@ Nandeenee Singh : I played the violin for 7 years (I was not good).
 __________________________________________________________________
 Aarav Raina : 
 
-Alex Saidov : 
+Alex Saidov : I jumped out from the 4th floor
 
 Alyssa Haidar : 
 
