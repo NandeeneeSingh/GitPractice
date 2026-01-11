@@ -40,7 +40,7 @@ Jerome Rodrigo :
 
 Kaydence Lin : 
 
-Keshav Goel : 
+Keshav Goel : I'm part of an Indian Dance Team
 
 Melina Yang : 
 
