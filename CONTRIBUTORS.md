@@ -10,7 +10,7 @@ Alex Saidov :
 
 Alyssa Haidar : 
 
-Anusha Narang : 
+Anusha Narang : I have a black belt in taekwondo
 
 Arshia Mathur : 
 
