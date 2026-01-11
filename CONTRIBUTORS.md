@@ -20,7 +20,7 @@ Ben Welsh :
 
 Chelsea Kwan : 
 
-Deekshita Madhalam : 
+Deekshita Madhalam : I danced for 14 years 
 
 Diya Kadakia : 
 
