@@ -44,7 +44,7 @@ Keshav Goel :
 
 Melina Yang : 
 
-Michael Maaseide : 
+Michael Maaseide : I was in NUin Greece my first semester.
 
 Ollie Baccay : 
 
