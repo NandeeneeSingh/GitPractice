@@ -1,8 +1,8 @@
-The best color is ____
+The best color is Tangerine
 
 The best tv show is ________
 
-The best muscial artist is ________
+The best muscial artist is Lady Gaga
 
 The best programming language is _________
 
